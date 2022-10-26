@@ -1,4 +1,4 @@
-# Sobre mim
+# Sobre minha pessoa
 - 👋 Olá, meu nome é @dilucpiro
 - :+1:Meu email de contato é amanda.lima.paula@escola.pr.gov.br
 - 👀 Eu estou interessado em aprender línguas
